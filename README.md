@@ -1,0 +1,1 @@
+# js_2_zadanie_Gorskaya
